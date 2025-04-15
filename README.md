@@ -3,7 +3,9 @@
 
 **Shyla Marie** <br>
 
-April 6, 2025. <br>
+\href{mailto:shylamarie.work@gmail.com}{shylamarie.work@gmail.com} <br>
+
+April 6, 2025 <br>
 
 ## Abstract
 
