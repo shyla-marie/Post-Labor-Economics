@@ -3,7 +3,7 @@
 
 **Shyla Marie** <br>
 
-\href{mailto:shylamarie.work@gmail.com}{shylamarie.work@gmail.com} <br>
+shylamarie.work@gmail.com <br>
 
 April 6, 2025 <br>
 
