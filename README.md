@@ -1,9 +1,7 @@
 
 # A Dynamic Macroeconomic Analysis On Technological Innovation, Labor Automation, and the Road to Post-Labor Economics: A Theoretical Foundation for Post-Labor Economic Research.
 
-**Shyla Marie** <br>
-
-**April 6, 2025** <br>
+**Shyla Marie**. April 6, 2025. <br>
 
 ## Abstract
 
